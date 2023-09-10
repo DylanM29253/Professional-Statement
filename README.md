@@ -1,2 +1,2 @@
 Professional-Statement
-As a cybersecurity professional, I exce in verbal communication and time management. I'm dedicated to the values of security and privacy. I effectively convey security concepts and manage tasks efficiently to protect our systems and ensure the confidentiality of user data, all while adhering to privacy regulations.
+Hello my name is Dylan, I excel in verbal communication and time management. I'm dedicated to the values of security and privacy. I effectively convey security concepts and manage tasks efficiently to protect company systems and ensure the confidentiality of user data, all while adhering to privacy regulations. I enjoy working with technology and problem solving complex problems.
